@@ -1,1 +1,1 @@
-# Miam'tudians
+# Miam'tudiants
